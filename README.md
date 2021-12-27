@@ -1,0 +1,2 @@
+# pol-tica
+Corrupción
