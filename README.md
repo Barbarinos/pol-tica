@@ -1,3 +1,3 @@
 {Buenos días}
-Gallos!
-Corrupción
+¡Gallos!
+
